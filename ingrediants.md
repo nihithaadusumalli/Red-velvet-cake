@@ -1,0 +1,15 @@
+Red Vevlvet Cake Ingredients are...
+
+1. 1/2 cup of unsalted butter (room temperature) (115g)
+2. 1 1/2 cup of granulated sugar (300g)
+3. 2 Large eggs (add one at a time)
+4. 2 Tbsp. unsweetened cocoa powder (24g)
+5. 1 cup of buttermilk (250mL) 
+6. 1 Tbsp. of vinegar or lemon juice (keep it aside for 10 minutes)
+7. 1 tsp. vanilla extraci (5mL)
+8. 1 tsp. of white venigar (5mL)
+9. 1/4 cup of oil (vegetable oil,etc) (55g)
+10. 2  to 2 1/2 Tbsp. of red food colouring liquid (30 to 40 mL)
+11. 2 1/2 cups of all-purpose flour or cake flour (320g)
+12. 1 tsp. of baking soda (5g)
+13. 1 tsp. of baking salt (5g)
